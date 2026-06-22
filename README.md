@@ -2,7 +2,7 @@
 ![image](https://64.media.tumblr.com/2a03b20970a636658a43b1fb79e5da8e/effa1a2c0a03dfa5-0c/s2048x3072/2b4acb9ae29eeb20f676ad3997d77dfa5a95997d.pnj)
 
 <p align="center">♡ Florence . he/she/them . 17 ♡</p>
-<p align="center">♡ alucard, gwyndolin, & alt. gabriel yume . I love alucard so much ^_^ ♡</p>
+<p align="center">♡ alucard, gwyndolin, lady oscar, & alt. gabriel yume . I love alucard so much ^_^ ♡</p>
 
   
 <p align="center"><img src="https://64.media.tumblr.com/c61fa8c556e8052887fa97122d3834d9/d9f33559b7d76b91-f2/s100x200/e9637adfa1fc0c4573d6f09c889e81fe288bf446.gif"
