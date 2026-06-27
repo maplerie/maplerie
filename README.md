@@ -6,7 +6,7 @@
 <p align="center"> $\color{#f9faf0}{\textsf{Florence ୨୧ Maple }}$  
 <p align="center"> $\color{#cfd4c7}{\textsf{she / he / them , androgyne , 17}}$ 
 <p align="center"> $\color{#8da37e}{\textsf{yume of many sigh : gwyndolin, alucard, anthony hope, lady oscar. sharing!!}}$ 
-<p align="center"> $\color{#708066}{\textsf{c + h and w2i friendly!! I love making friends.}}$ 
+<p align="center"> $\color{#708066}{\textsf{c + h and w2i friendly!! I love making friends. also refrain from those sayori jokes right in front of me pls!}}$ 
 
                     
 ![image](https://64.media.tumblr.com/447c9967884b369047a0df9bd1b390c9/tumblr_pwtcyvr4Kh1xbgu08o1_100.pnj)
