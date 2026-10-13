@@ -5,7 +5,7 @@
 
 <p align="center"> $\color{#f9faf0}{\textsf{Florence ୨୧ Maple }}$  
 <p align="center"> $\color{#cfd4c7}{\textsf{they / them , androgyne , 18}}$ 
-<p align="center"> $\color{#8da37e}{\textsf{yume of many sigh : alucard, alternate gabriel, anthony hope, lady oscar. sharing!!}}$ 
+<p align="center"> $\color{#8da37e}{\textsf{yume of many sigh (mostly ocxcanon) : alucard, alternate gabriel, henry creel, anthony hope, lady oscar. sharing!!}}$ 
 <p align="center"> $\color{#708066}{\textsf{c + h and w2i friendly!! I love making friends. also refrain from those sayori jokes right in front of me pls!}}$ 
 
                     
