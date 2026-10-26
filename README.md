@@ -1,3 +1,4 @@
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=658461&width=435&lines=Was+I+born+with+a+hole+in+my+heart%3F;A+fatal+fault+at+the+start;Tell+me+it's+inevitable+that+I+end+up+with+scars" alt="Typing SVG" /></a>
 <p align="center"> <img src=https://64.media.tumblr.com/bfd285b789e97098a58ac138babe2afc/5ce717fffc30739a-78/s540x810/02ba60abca0e3200eedf5076bbdbbc7d6ccd9a87.pnj></p>
 <p align="center"> <img src=https://64.media.tumblr.com/0d931072fd253c1b0ecbbd324b3849e2/2cbfaba5ffc568fa-f6/s640x960/1ef9d518bc723766a6431f9748a4f229e8256c8d.pnj> </p>
 
